@@ -1,6 +1,6 @@
 **Watch out for bad jokes, GroZ'Yeux is there !** 👋
 ---
-🏫 Currently student in both **ENSIIE (Évry, France)** 🇫🇷 and **UQAC (Chicoutimi, Québec)** 🇨🇦, I love to design and develop video games.
+🏫 Currently student in both **ENSIIE (Évry, France)** 🇫🇷 and **UQAC (Chicoutimi, Québec)** 🇨🇦 for a last year, I'm learning to design and develop video games.
 
 🎮 As a child, I could only play, but now I can create my own games !
 
